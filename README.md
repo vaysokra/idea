@@ -4,5 +4,3 @@
 Supported by Galapagos island ,every life will revolve to support themselves in that situation. `Red sea(blue sea ago)`.
 2.	`Brain,heart and sex` is psychology of people.
 3.	`Existing ideas with new algorithms` to make new ideas.
-### GitLab Orange Heading
-{: .gitlab-orange}
