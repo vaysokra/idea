@@ -5,4 +5,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 2.	`Brain,heart and sex` is psychology of people.
 3.	`Existing ideas with new algorithms` to make new ideas.
 4.	why `no long future plan ` is better than `long future plan` ,because cause us solve unpredicted problem by confidence by world is not well predictable.(26 Apr 2021)
-5. `(reference korean SEWOL ship 2014 .all students were killed by follow speech from ship capitain said that : all of you should stay in self room for good stituation )` dont trust anyone if you in risk  than you think you can solve.(02 May 2021)
+5. `(🚢reference korean SEWOL ship 2014 .all students were killed by follow speech from ship capitain said that : all of you should stay in self room for good stituation )` dont trust anyone if you in risk  than you think you can solve.(02 May 2021)
