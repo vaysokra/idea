@@ -9,3 +9,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 6. every problem can solve by expert in any firm, example: if you dont know well dress your cloth ,you should goto clothing store for help.( 03 May 2021)
 7. `chao chao (three kingdom)` he said that "i always open and love talented people to my team from anywhere include from `enemy side` but i always hate Betrayal friends".(24 May 2021)
 8. `magic is real? by the smartest make it happen` if every happen is created by the smartest people ,there are not average know or solve it ,also this is magic?(31 May 2021)  
+9. `free and open source production` after it release for use it ,we can get issue in and improve for `paid production version`.(21 july 2021)
