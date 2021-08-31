@@ -11,3 +11,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 8. `magic is real? by the smartest make it happen` if every happen is created by the smartest people ,there are not average know or solve it ,also this is magic?(31 May 2021)  
 9. `free and open source production` after it release for use it ,we can get issue in and improve for `paid production version`.(21 july 2021)
 10. `responsible and not doing by your mind when you as kid` make you perfect in older.(30 july 2021)
+11. `outdated school system`make people more memory than make more product because computer can instead it (1 sep 2021)
