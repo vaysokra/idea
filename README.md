@@ -12,3 +12,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 9. `free and open source production` after it release for use it ,we can get issue in and improve for `paid production version`.(21 july 2021)
 10. `responsible and not doing by your mind when you as kid` make you perfect in older.(30 july 2021)
 11. `outdated school system`make people more memory than make more product because computer can instead it (1 sep 2021)
+12. `your mind is your destiny` > when u think u live with high class make u happy, u need it.> but when u think u live simple, u can live too.> also when i think i am high,i cannot live low by it always be the same.(02 sep 2021)
