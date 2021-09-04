@@ -14,3 +14,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 11. `outdated school system`make people more memory than make more product because computer can instead it (1 sep 2021)
 12. `your mind is your destiny` > when u think u live with high class make u happy, u need it.> but when u think u live simple, u can live too.> also when i think i am high,i cannot live low by it always be the same.**ex:** billioniar turn to be poor.(02 sep 2021)
 13. `why some people want to live forever`because they think future will make their feel tast new thing and they think feel enough,also they do not live more. (02 sep 2021)
+14. `logical think,no one fit all`if u use theory apply yourself and u can respone to complete it,it mean this theory right or correct for u.**exp:** every follower fail to startup because they believe and apply this theory to another.(04 sep 2021)
