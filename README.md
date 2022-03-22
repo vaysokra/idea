@@ -18,3 +18,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 15. `more productive `learn to mix good of anything together like `jing jung` methology.**exp:** the best soup come mixing of sugar, water, salt, vegetable, meat and fire. (27 sep 21)
 16. `RapidApi` i called it as market for developer connect to any Api, this concept make us copy workflow of existed lived-with to new lived-with idea or product.(3 Dec 21)
 17. `swiss country` called as `legal place for wash black money `, this concept make us think : overworld ,there are least way that can solve problem that we are in `poor` never know or used to as `Rich`.(3 Dec 21)
+18. `សសរផ្ទះ = សុីម៉ង់លាយថ្ម + ដែកក្រង` (សុីម៉ង់លាយថ្មខ្លាំងសង្កត់ខ្សោយបត់) (ដែកក្រងខ្លាំងបត់ខ្សោយសង្កត់) dont use the thing that have strong both .(22 mar 2022)
