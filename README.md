@@ -24,3 +24,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 18. `សសរផ្ទះ = សុីម៉ង់លាយថ្ម + ដែកក្រង` (សុីម៉ង់លាយថ្មខ្លាំងសង្កត់ខ្សោយបត់) (ដែកក្រងខ្លាំងបត់ខ្សោយសង្កត់) dont use the thing that have strong both .(22 mar 2022)
 19. `good and bad perspective` when people give another that make the good perspective view ,and people take from another make the bad perspective view .(09 may 2022)
 20. `data` is best thing for adapt, recovery, change, and find the mistake. because when i'm young , i have can test and learn from another but when i'm big , i have no time to test, also only data can show us "what wrong with?" .(31 may 2022)
+21. `fun as be professional as hardwork but not be the best`.To be the best is awesome but fun with your life is also good choice. `Neymar` said i play football for fun and love it, not to be the best .After football he always spent time for his life.(21 Oct 2022)
