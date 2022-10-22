@@ -25,3 +25,4 @@ Supported by Galapagos island ,every life will revolve to support themselves in 
 19. `good and bad perspective` when people give another that make the good perspective view ,and people take from another make the bad perspective view .(09 may 2022)
 20. `data` is best thing for adapt, recovery, change, and find the mistake. because when i'm young , i have can test and learn from another but when i'm big , i have no time to test, also only data can show us "what wrong with?" .(31 may 2022)
 21. `work by fun make u as be professional as hardwork but not be the best`.To be the best is awesome but fun with your life is also good choice. `Neymar` said i play football for fun and love it, not to be the best .After football he always spent time for his life.(21 Oct 2022)
+22. `why people can not stop believe whatever have proof to show ` because it can hurt them for their believe. (22 Oct 2022) 
